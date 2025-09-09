@@ -92,4 +92,32 @@ By theorizing historiophany, we begin to appreciate history not as a static fie
 
 - - - - - - -
 
+## SOME PERTINENT LINKS ON THE SUBJECT:
+
+* [Historiophany: The Luminous Dissolution of Time](https://historiophany.wordpress.com/2025/02/02/historiophany-the-luminous-dissolution-of-time/)
+* [General Theory of Historiophany Part I](https://historiophany.wordpress.com/2025/02/02/general-theory-of-historiophany-part-i/)
+* [Historiophany: A Secular Adaptation of Pannikar's Christophany](https://historiophany.wordpress.com/2025/02/02/historiophany-a-secular-adaptation-of-pannikars-christophany/)
+* [Historiophany as a New Historical Paradigm](https://historiophany.wordpress.com/2025/02/02/historiophany-as-a-new-historical-paradigm/)
+* [Historiovision: A Secular Framework For Understanding History](https://historiophany.wordpress.com/2025/02/02/historiovision-a-secular-framework-for-understanding-history/)
+* [Historiophany: The Manifestation of History](https://historiophany.wordpress.com/2025/02/02/historiophany-the-manifestation-of-history/)
+* [Expanding Historiovision and Historiophany](https://historiophany.wordpress.com/2025/02/02/expanding-historiovision-and-historiophany/)
+* [The Phenomenological Ontology of Historiophany Through Historiovision](https://historiophany.wordpress.com/2025/02/02/the-phenomenological-ontology-of-historiophany-through-historiovision/)
+* [A Taxonomy of Historiophanic Experiences](https://historiophany.wordpress.com/2025/02/02/a-taxonomy-of-historiophanic-experiences/)
+* [Historiophany: The Dynamic Manifestation of History](https://historiophany.wordpress.com/2025/02/02/historiophany-the-dynamic-manifestation-of-history/)
+* [Historiovisionary Practice](https://historiophany.wordpress.com/2025/02/02/historiovisionary-practice/)
+* [Analysis of "The Historiophany Continuum"](https://historiophany.wordpress.com/2025/02/02/analysis-of-the-historiophanic-continuum/)
+* [Taxonomy of The Historiophanic Continuum](https://historiophany.wordpress.com/2025/02/02/taxonomy-of-the-historiophanic-continuum/)
+* [Historiophany: An In-Depth Conceptual Framework](https://historiophany.wordpress.com/2025/02/02/historiopathy-an-in-depth-conceptual-framework/)
+* [Concept of Historiophany in Historiomics](https://historiophany.wordpress.com/2025/02/02/concept-of-historiopathy-in-historiomics/)
+* [Historiopathy: A Detailed Extrapolation](https://historiophany.wordpress.com/2025/02/02/historiopathy-a-detailed-extrapolation/)
+* [Historiophany: A Definition](https://historiophany.wordpress.com/2025/02/02/historiophany-a-definition/)
+* [Analysis and Description of The Concept of Historiophany](https://historiophany.wordpress.com/2025/02/02/analysis-and-description-of-the-concept-of-historiophany/)
+* []()
+* []()
+* []()
+* []()
+* 
+
+- - - - - - -
+
 [A.G. (c) 2025. ![A.G. (c) 2025. All Rights Reserved](https://historiotheque.files.wordpress.com/2016/11/ag_signature_official_2015_50px_cropped.jpg) All Rights Reserved.](http://alexgagnon.com)
