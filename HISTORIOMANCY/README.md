@@ -157,3 +157,6 @@ The relationship between Historiophany and Historiomancy is not one of mere sequ
     • *Re-Enchanting History*: Both concepts contribute to a "re-enchantment" of history, moving it away from a sterile, objective discipline to a living, breathing, and potent force. Historiophany provides the raw magic, the spontaneous manifestation. Historiomancy provides the ritual, the lexicon, and the intention to harness that magic for meaningful insight and transformative action.
 In conclusion, Historiophany describes history's inherent capacity for dynamic self-revelation, presenting itself as a "River of Shadows" or a "Shattered Hourglass." Historiomancy, in turn, is the specialized practice of navigating these "flowing waters" and interpreting the signals from "Time unbound." Together, they forge a powerful "epistemic-mantic synthesis" where history is not merely recounted but "consulted, interrogated, and invoked as an active field of signs," ultimately fulfilling the promise that "History divined is future discerned."
 
+- - - - - - -
+
+[A.G. (c) 2025. ![A.G. (c) 2025. All Rights Reserved](https://historiotheque.files.wordpress.com/2016/11/ag_signature_official_2015_50px_cropped.jpg) All Rights Reserved.](http://alexgagnon.com)
