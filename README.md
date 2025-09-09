@@ -112,11 +112,16 @@ By theorizing historiophany, we begin to appreciate history not as a static fie
 * [Historiopathy: A Detailed Extrapolation](https://historiophany.wordpress.com/2025/02/02/historiopathy-a-detailed-extrapolation/)
 * [Historiophany: A Definition](https://historiophany.wordpress.com/2025/02/02/historiophany-a-definition/)
 * [Analysis and Description of The Concept of Historiophany](https://historiophany.wordpress.com/2025/02/02/analysis-and-description-of-the-concept-of-historiophany/)
-* []()
-* []()
-* []()
-* []()
-* 
+* [Historiophany: A Comprehensive Framework for Historical Practice and Praxis](https://historiophany.wordpress.com/2025/02/02/historiophany-a-comprehensive-framework-for-historical-practice-and-praxis/)
+* [The Phenomenology of Historiophanies](https://historiophany.wordpress.com/2025/02/02/the-phenomenology-of-historiophanies/)
+* [Advanced Formalization of The Phenomenology of Historiophany](https://historiophany.wordpress.com/2025/02/02/advanced-formalization-of-the-phenomenology-of-historiophany/)
+* [Towards a General Theory of Historiophany: A Comprehensive Formalization](https://historiophany.wordpress.com/2025/02/02/towards-a-general-theory-of-historiophany-a-comprehensive-formalization/)
+* [Philosophical Foundations and Analysis of Historiophany](https://historiophany.wordpress.com/2025/02/02/philosophical-foundations-and-analysis-of-historiophany/)
+* [Historiophany in Terms of Kairotic Fields](https://historiophany.wordpress.com/2025/02/02/historiophany-in-terms-of-kairotic-fields/)
+* [Expanding Historiophany Into a Comprehensive Framework: Kairotic Metaphysics of History](https://historiophany.wordpress.com/2025/02/02/expanding-historiophany-into-a-comprehensive-framework-kairotic-metaphysics-of-history/)
+* [Historiophanic Sillage: The Lingering Presence of History](https://historiophany.wordpress.com/2025/02/22/historiophanic-sillage-the-lingering-presence-of-history/)
+* [Phenomenology of The Sillage of Historiophany](https://historiophany.wordpress.com/2025/02/22/phenomenology-of-the-sillage-of-historiophany/)
+* [The Untapped Potential of Historiophany in The Arts](https://historiophany.wordpress.com/2025/02/23/the-untapped-potential-of-historiophany-in-the-arts/) 
 
 - - - - - - -
 
