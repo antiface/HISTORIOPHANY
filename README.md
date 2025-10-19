@@ -1,4 +1,4 @@
-# HISTORIOPHANY
+# HISTORIOPHANY [![DOI](https://zenodo.org/badge/DOI/10.5281/zenodo.17391508.svg)](https://doi.org/10.5281/zenodo.17391508)
 
 __General Theory of Historiophany Part I__
 
